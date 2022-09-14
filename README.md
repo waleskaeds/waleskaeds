@@ -1,4 +1,4 @@
-## 🙍🏻‍♀️ Olá, eu sou a Waleska  
+## 🙍🏻‍♀️ Waleska Eduarda dos Santos
 #### 💻 Aprendiz Full-Stack
 
 <br> 
