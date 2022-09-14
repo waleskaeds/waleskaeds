@@ -1,4 +1,7 @@
-## Olá, eu sou a Waleska 💗 
+## 🙍🏻‍♀️ Olá, eu sou a Waleska  
+#### 💻 Aprendiz Full-Stack
+
+<br> 
 
 <div style="display: inline_block" align="center">
 <a href="https://github.com/waleskaeds">
